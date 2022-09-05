@@ -1,1 +1,0 @@
-# tampannisa.github.io.
